@@ -86,7 +86,7 @@ Stay tuned for more exciting projects!
 ## 📫 Connect With Me
 
 - 💼 LinkedIn: https://linkedin.com/in/your-linkedin
-- 📧 Email: your-email@example.com
+- 📧 Email: piyushsakhare01@gmail.com
 
 ---
 
